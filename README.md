@@ -1,0 +1,1 @@
+# UTS_Psik_23A_Ayu-amelia-pertiwi
